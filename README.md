@@ -3,6 +3,8 @@
 ![](http://tecnobits.xyz/wp-content/uploads/2017/12/las-mejores-laptops-gamers-2018-696x383.jpg)
 
 
+![](https://images.cooltext.com/5136286.png)
+
 Las gaming laptops, o laptops para juegos, son una de esas rarezas de las cuales la gente realmente no sabe mucho en estos días. Hoy vamos a contarte sobre las mejores computadoras portátiles para juegos que el 2018 ya tiene para nosotros.
 
 
